@@ -1,0 +1,1 @@
+# Diverse småting, eksperimenter, alt muligt 
